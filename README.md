@@ -4,6 +4,8 @@
 <p align="center">
 HIHI HELLOOO IM AKI/AKITO!! PLS C+H IF I HAVE IT IN MY NAMEE.. 
 <p align="center">
+also im taken ,,, I LOVE MY DEAR BOYFRIENDDDD RAHHHHHH (ml u know who u r<3)
+<p align="center">
 anywas i love to make new friends!! might be quiet at first but trust me i love talkinngggg.
 <p align="center">
 my intrests ; block tales, LHG, forsaken, tr:ud, zeno:remake, alnst, milgram, nso, love angel syndrome and more ^_^
